@@ -39,7 +39,7 @@
 ---
 
 ## 📫 Connect With Me
-- Instagram: coming soon  
-- Website: coming soon  
+
+- Gmail: shoaibshaikh3257@gmail.com 
 
 ⭐ Check out my repositories and feel free to collaborate!
